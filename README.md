@@ -41,13 +41,6 @@ Currently, I'm exploring the intersection of **neurotechnology** and **design** 
 
 ---
 
-## 📫 Connect With Me
-
-- 🌐 [Portfolio Website](#) _(Coming soon)_  
-- 📷 [Instagram](#)  
-- 🐦 [Twitter](#)  
-- 💼 [LinkedIn](#)  
-- ✉️ rupjyotibharadwaj@gmail.com
 
 ---
 
